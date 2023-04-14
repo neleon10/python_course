@@ -1,0 +1,1 @@
+# por el momento no tenemos info de las funciones porque se trata de las explicaciones que ya sabemos. 
